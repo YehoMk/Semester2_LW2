@@ -29,4 +29,4 @@ $$\frac{5505}{17} = (ост.14) \Rightarrow C_{17} = 14$$
 
 ---
 
-Відео захисту: 
+Відео захисту: https://www.youtube.com/watch?v=9OpDfr2fG_c
